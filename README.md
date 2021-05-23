@@ -1,5 +1,5 @@
 # Back to 1998
 DART 2021-1 모의투자 
 
-[운용계획 및 보고서](Back%20to%201998%20%E1%84%8B%E1%85%AE%E1%86%AB%E1%84%8B%E1%85%AD%E1%86%BC%E1%84%87%E1%85%A9%E1%84%80%E1%85%A9%E1%84%89%E1%85%A5%205505add399864bca90ad9d907b1adf2d.md)
+[운용계획 및 보고서](https://www.notion.so/Back-to-1998-9857ef7a99b64624be035e34ad296cdb)
 
